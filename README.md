@@ -13,5 +13,6 @@ Are you enjoying some of my libraries? Then [consider donating to my London Mara
 </p>
 
 100% of the collected funds will be donated to Mencap, the voice of learning disabilities ❤️
+You can also [get some free stickers](https://twitter.com/cortinico/status/1438428384598573058) by donating 😱
 
 I'll be happy to offer you a coffee once we meet in person ☕️.
