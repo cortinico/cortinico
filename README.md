@@ -1,4 +1,10 @@
-![profile](/img/speakersbanner.jpg)
+![vacation](/img/vacation.jpg)
+
+# Vacationing 🌴
+
+I'm currently off the grid, enjoying some time off! 🏖️
+
+Please refrain from pinging me unless is necessary. I'll get back to you as soon as I can.
 
 # Hi everyone 👋
 
